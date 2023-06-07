@@ -1,5 +1,5 @@
 ## Говірка Українська автентична
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0-4Qfg7YpQE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 Бади́ль – бур’ян  
 ба́єр – брехня  
 ба́йґель – булка (чотиридільна)  

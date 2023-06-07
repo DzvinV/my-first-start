@@ -14,3 +14,4 @@
 >     **атра́кція – взаємна привабливість**  
 >     **аус – кінець, сідниці**
 - [йдемо долів](b.md)
+<audio src="[https://z3.fm/mp3/search?keywords=%D0%BF%D0%BE%D0%BB%D1%8C%D0%BA%D0%B0]" autoplay></audio>
